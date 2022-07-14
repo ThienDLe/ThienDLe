@@ -2,6 +2,6 @@
 
 📚 I'm studying Mathematics at UC Irvine
 
-🔍 I’m currently looking for software developer position
+🔍 I’m currently looking for data analyst / data scientits position
 
 📫 Reach me at thienducle@outlook.com
