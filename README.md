@@ -4,4 +4,4 @@
 
 🔍 I’m currently looking for software developer position
 
-📫 Reach me at jeffreyle96@gmail.com
+📫 Reach me at thienducle@outlook.com
